@@ -1,3 +1,2 @@
 *Yo I'm Twisty boi,
-#a blockchain freak and a tech nomad,
-#always in madness swag...
+
